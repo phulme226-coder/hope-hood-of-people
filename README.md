@@ -1,1 +1,0 @@
-# hope-hood-of-people
